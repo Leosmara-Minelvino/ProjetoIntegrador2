@@ -30,11 +30,11 @@ Carga horária: 1h
 
 3.Oficina/Workshop - Domine a arte da citação: Uma oficina de referências e citações em trabalhos acadêmicos\
 Carga horária: 4h
-[certificado 5](certificado-5.jpg)
+[certificado 6](certificado-6.jpg)
 
 4. Oficina/Workshop: Informática básica\
 Carga horária: 4h
-[certificado 4](certificado-4.jpg)
+[certificado 5](certificado-5.jpg)
 
 5. EXPOSIÇÃO -SEMANA DE PESQUISA E EXTENSÃO - IFAM CAMPUS EIRUNEPÉ\
 Carga horária: 40h.
